@@ -1,0 +1,1 @@
+My favorite vacation was to Hawaii. Even though I was very young, I still remember how beautiful the land and water was there. The beaches were also amazing to swim and lay on. I hope I get to go back someday soon.
