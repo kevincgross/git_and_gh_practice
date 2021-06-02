@@ -1,1 +1,1 @@
-One of my favorite hobbies to do is powerlifitng.
+One of my favorite hobbies to do is powerlifitng. Powerlifting is a sport where you essentially work on and compete with only 3 lifts. The 3 lifts are squat, bench, and deadlift in that order. It is a very easy sport and hobby that allows you to set goals because you are essentially just chasing weight numbers. I like this a lot about this sport as it makes it easy to document and track progress.
